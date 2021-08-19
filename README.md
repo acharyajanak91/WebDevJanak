@@ -3,4 +3,4 @@
 👀 I’m a big data and machine learning enthusiast
 🌱 I’m currently learning AI
 💞️ I’m looking to collaborate
-📫 How to reach me acharyajanak91@gmail.com
+📫 I can be reached at acharyajanak91@gmail.com
